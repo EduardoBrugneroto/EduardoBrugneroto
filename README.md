@@ -5,6 +5,6 @@
 
 
 - 👋 Olá eu sou o @EduardoBrugneroto e estou terminando minha escola
-- 👀 Tenho interese em progamação e futebol
+- 👀 Tenho interesse em progamação e futebol
 - 🌱 Atualmente estou aprendendo a programar e terminando a escola
 - 📫 Você pode me encontrar no meu email (xeduxbrux@gmail.com) ou no linkedin @EduardoBrugneroto
