@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @EduardoBrugneroto i have 15 years 
 - 👀 I’m interested in progamation and soccer
 - 🌱 I'm currently learning to program and finishing school
-- 📫 Can you find me in my email (xeduxbrux@gmail.com) or on LinkedIn @EduardoBrugneroto
+- 📫 Can you find me in my email (xeduxbrux@gmail.com) or on LinkedIn https://www.linkedin.com/in/eduardo-brugneroto-57aba61b8/
 
 
 - 👋 Olá eu sou o @EduardoBrugneroto tenho 15 anos
