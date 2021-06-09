@@ -7,4 +7,4 @@
 - 👋 Olá eu sou o @EduardoBrugneroto tenho 15 anos
 - 👀 Tenho interesse em progamação e futebol
 - 🌱 Atualmente estou aprendendo a programar e terminando a escola
-- 📫 Você pode me encontrar no meu email (xeduxbrux@gmail.com) ou no linkedin @EduardoBrugneroto
+- 📫 Você pode me encontrar no meu email (xeduxbrux@gmail.com) ou no linkedin https://www.linkedin.com/in/eduardo-brugneroto-57aba61b8/
